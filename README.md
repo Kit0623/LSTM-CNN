@@ -12,7 +12,7 @@ This is just the beginning. Let’s keep building, let’s keep dreaming. 💡�
 
 #UMHackathon2025 #Top3 #TeamRojakUni #InnovationChampions #TechWithPurpose #ProudMoment #WinnersCircle #MalaysiaTech
 
-#ELLM
+# ELLM
 🌟 We’ve made it to the Top 8!
 
 After months of dedication, refinement, and big-picture thinking, we’re proud to share that RojakUni is officially a Top 8 Finalist in the prestigious ELLM Startup Initiative 2025! 🏆🚀
